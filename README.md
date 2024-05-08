@@ -1,0 +1,3 @@
+ANA SOFIA RODRIGUEZ SANCHEZ
+24110112
+# tarea-segundo-parcial
